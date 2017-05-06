@@ -24,3 +24,22 @@ A compilation of President Duterte's lies, backtracking, and other displays of e
 | On talking to God | ["God said for me to quit cursing."](https://www.nytimes.com/2016/10/29/world/asia/president-duterte-says-god-told-him-to-swear-off-the-curse-words.html) | [Joke lang yun, ano ba?](http://newsinfo.inquirer.net/841323/no-talk-with-god-duterte-says-it-was-a-joke) |
 | On being sick | [Acute bronchitis, slipped disc, Barrett’s esophagus, Buerger’s disease](http://newsinfo.inquirer.net/764394/duterte-admits-he-has-4-ailments) | [Pink of health](http://www.reuters.com/article/us-philippines-duterte-health-idUSKBN1431H7) |
 | On avoiding Obama | [Jet lag](http://www.philstar.com/headlines/2016/11/21/1646104/duterte-not-able-join-apec-gala-dinner-family-photo-due-jet-lag) | ["I avoided Obama."](http://www.philstar.com/headlines/2016/12/13/1653083/duterte-admits-not-sick-apec-i-avoided-obama) |
+
+---
+
+**Times President Duterte offered to resign:**
+- [If bank accounts are true](http://news.mb.com.ph/2017/02/17/duterte-i-will-resign-if-bank-account-claims-are-true/)
+- [If Robredo proves Duterte ordered killings](http://www.sunstar.com.ph/manila/local-news/2016/12/18/duterte-robredo-ill-resign-if-youll-prove-i-order-killings-515673)
+- [If Catholic bishops resign first](http://www.sunstar.com.ph/manila/local-news/2017/01/24/duterte-dares-catholic-bishops-lets-resign-together-521817)
+- [If drug war fails in their self imposed 3-6 months timeline](http://politics.com.ph/itaga-sa-bato-duterte-cayetano-to-resign-as-president-vp-in-6-months-time-if/)
+- [If moves for federalism are in motion](http://newsinfo.inquirer.net/800481/duterte-willing-to-resign-if-govt-shifts-to-federalism)
+- [If UN can prove killings were state sanctioned.](http://www.ibtimes.co.uk/duterte-vows-step-down-immediately-if-investigators-prove-state-sanctioned-killings-1583579)
+- [If kids are corrupt](http://www.rappler.com/nation/164000-duterte-resign-children-get-involved-corruption)
+- [If relatives are corrupt](http://newsinfo.inquirer.net/854917/duterte-ill-quit-if-my-kin-are-proven-corrupt)
+- [If he can't last 1.5 hours on a treadmill.](http://news.abs-cbn.com/nation/05/25/16/duterte-im-dying-whats-your-problem)
+
+---
+
+**Bonus:**
+- [Duterte admits only 2 out of 5 of his statements are true](http://www.philstar.com/headlines/2017/02/08/1670526/duterte-admits-only-2-out-5-his-statements-are-true)
+- [Candidate Duterte different from President Duterte, says Diokno](http://news.abs-cbn.com/business/01/03/17/candidate-duterte-different-from-president-duterte-says-diokno)
