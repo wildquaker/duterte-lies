@@ -1,9 +1,9 @@
-# duterte-lies
+# Duterte's Lies
 A compilation of President Duterte's lies, backtracking, and other displays of excessive pride
 
 Credits to [/u/merdionesmondragon](https://www.reddit.com/user/merdionesmondragon) for compiling these
 
-| What | Duterte | Duterte|
+| What | Duterte | Duterte |
 |------|---------|------- |
 | Campaign donors| [Emilio Aguinaldo](http://www.gmanetwork.com/news/news/nation/564017/duterte-explains-emilio-aguinaldo-says-campaign-contributors-were-from-davao-city/story/) | [13 donors contributed 89% of his campaign funds](http://www.philstar.com:8080/headlines/2016/12/05/1650540/p334-million-13-donors-funded-dutertes-presidency) |
 | Gina Lopez | ["I stand by Gina, and lose P70 billion from mining"](http://newsinfo.inquirer.net/879775/duterte-stands-by-lopez-even-if-govt-risks-losing-mining-revenue) | ["Lobby money talks, sayang si Gina."](http://www.rappler.com/nation/168889-duterte-gina-lopez-lobby-money) |
